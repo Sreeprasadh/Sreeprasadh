@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sreeprasadhhh48@gmail.com**
 
-- ⚡ Fun fact **I failed everywhere, and now I don't want to**
+- ⚡ **I have not failed. I've just found 10,000 ways that won't work.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
